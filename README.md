@@ -1,1 +1,0 @@
-# goffypigsigma.github.io
